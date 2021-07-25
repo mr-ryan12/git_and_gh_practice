@@ -1,0 +1,1 @@
+One of the best vacations I had was on Jam Cruise February 2020 right before the pandemic hit. My friends and I set sail from Miami and had access to live music from some of our favorites 24 hours a day for 5 days. We docked in the Bahamas and Costa Maya. Truly an experience I won't forget and hope to go back!
